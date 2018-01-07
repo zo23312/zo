@@ -1,1 +1,3 @@
-# zo
+Amazon is offering a nice discount on December 21st on the Philips HUE Starter Kit consisting of 3 bulbs and the connection bridge. The set is offered at only € 109 instead of € 199. 
+The kit offers a connection bridge and 3 GU10 Hue bulbs. You can control the lighting from your smartphone or your iOS or Android tablet. Everything works in tandem with the HUE application, to control alarms, timers and virtual guarding. This December 21, this starter kit is offered at € 109 instead of € 199. A good start to creating the connected home of your dreams.
+https://ok.ru/group/54020681629768/topic/67548820693064
